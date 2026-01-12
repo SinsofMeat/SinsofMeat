@@ -6,6 +6,6 @@
 Usually drawing, playing a game, or scrolling on social media if we're online ! \
 **He / Him** are the system's default pronouns :p \
 **PLEASE TELL US DIRECTLY IF WE UPSET YOU AND WE WILL APOLOGIZE!** \
-*^ We don't have access to therapy and require a lot of patience + support for our illnesses. Keep this in mind when befriending us! (This includes AuDHD, MDD, and two anxiety disorders :( )* \
+*^ We don't have access to therapy and require a lot of patience + support for our illnesses. Keep this in mind when befriending us! (This includes AuDHD, MDD, and two anxiety disorders :( )*
 ## ╋━ 　INTERESTS 
 **Original OCs/Worldbuilding + Writing/Roleplay**, **Cookie Run** *(Kingdom & Ovenbreak)*, **Trigun**, **Splatoon**, **Vocaloid**, Pokémon *(S/M, US/UM, and Legends Arceus)*, Omori, 
