@@ -1,4 +1,4 @@
-[![Hits](https://hitcount.dev/p/SinsofMeat/SinsofMeat/README.md.svg?label=Ferrislings&countColor=ff0000)]
+![Hits](https://hitcount.dev/p/SinsofMeat/SinsofMeat/README.md.svg?label=Ferrislings&countColor=ff0000)
 ###### Art by @ruporas on Tumblr ! Everything written by FERRIS !!
 ![I <3 NICHOLAS D. WOLFWOOD](https://github.com/SinsofMeat/GIF-IMG/blob/main/%40ruporas%2Btumblr.png)
 ## ╋━ 　BYI !
