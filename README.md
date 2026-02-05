@@ -11,4 +11,4 @@ White, all of us ID as transmasc insys, also just queer as hell. IF YOU'RE NOT P
 ## ╋━ 　INTERESTS 
 **Original OCs/Worldbuilding + Writing/Roleplay** *(Romance is my favorite thing ever)* , **Cookie Run** *(Kingdom & Ovenbreak)* , **Trigun**, **Splatoon**, **Vocaloid**, **Arknights: Endfield**, **Studio Investigrave + Rachel & Rix OCs**, In Stars & Time, Minecraft, In Stars & Time, Pokémon *(S/M, US/UM, and Legends Arceus)* , Omori, Alien Stage, Toilet-Bound Hanako-Kun, Demon Slayer, Glitch Studios *(MD, TADC, and KOG)* , Zelda *(SO NORMAL ABOUT TWILIGHT PRINCESS)*, Deltarune, and Still in Love from Umamusume specifically LOL
 
-[![Hits](https://hitcount.dev/p/SinsofMeat/SinsofMeat/README.md.svg?label=Ferrislings&countColor=ff0000)]
+<div style="text-align: center;">![Hits](https://hitcount.dev/p/SinsofMeat/SinsofMeat/README.md.svg?label=Ferrislings&countColor=ff0000)</div>
