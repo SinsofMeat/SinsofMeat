@@ -4,7 +4,7 @@
 ## ╋━ 　BYI !
 **PLEASE GOD JUST BE A DECENT HUMAN BEING!!** \
 ♡ Yes, I have PDID. Most people won't see my alters. If the skin belongs to another alter the pony desc. will have a different name. \
-**INTERACT** FREELY!! W2I if I don't respond so I see your messages when I look back ^^;* \
+**INTERACT** FREELY!! *W2I if I don't respond so I see your messages when I look back ^^;* \
 Skins will USUALLY have what I'm doing in the name! \
 Please tell me directly if I upset you and I will apologize/rectify my behavior! \
 *^ I don't have access to therapy and require a lot of patience + support for my multiple mental illnesses. Just ask if you want to know what those are.* \
