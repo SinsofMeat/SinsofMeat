@@ -6,6 +6,7 @@
 ♡ Yes, I have PDID. Most people won't see my alters. If the skin belongs to another alter the pony desc. will have a different name. \
 **INTERACT** FREELY!! *W2I if I don't respond so I see your messages when I look back ^^;* \
 Skins will USUALLY have what I'm doing in the name! \
+Btw oomfs you can ask for my discord or join my oc/art server if u want just ask!!!
 Please tell me directly if I upset you and I will apologize/rectify my behavior! \
 *^ I don't have access to therapy and require a lot of patience + support for my multiple mental illnesses. Just ask if you want to know what those are.* \
 White, all of us ID as transmasc insys, also just queer as hell. IF YOU'RE NOT POLITICALLY LEFT FUCK OFF *PLEASE*
