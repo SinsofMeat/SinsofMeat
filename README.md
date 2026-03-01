@@ -1,6 +1,7 @@
 ![Hits](https://hitcount.dev/p/SinsofMeat/SinsofMeat/README.md.svg?label=Ferrislings&countColor=ff0000)
 ###### Art by @ruporas on Tumblr ! Everything written by FERRIS !!
 ![I <3 NICHOLAS D. WOLFWOOD](https://github.com/SinsofMeat/GIF-IMG/blob/main/%40ruporas%2Btumblr.png)
+![HI HELLO OOMFS](https://github.com/SinsofMeat/GIF-IMG/blob/main/stupids.PNG)
 ## ⴕ　BYI !
 **PLEASE GOD JUST BE A DECENT HUMAN BEING!!** \
 ♡ Yes, I have PDID. Most people won't see my alters. If the skin belongs to another alter the pony desc. will have a different name. \
